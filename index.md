@@ -4,4 +4,4 @@
 ### 感谢CJW天马神坑
 ######[灵空官网](https://lingkong-robot.cn)
 [(https://i.bmp.ovh/imgs/2019/10/15aa0b1cc5d18dba.png))]](https://shequ.codemao.cn/)
-[(image-f83b77-1542510791300)](http://www.baidu.com)
+[图片上传失败...(image-f83b77-1542510791300)]](http://www.baidu.com)
