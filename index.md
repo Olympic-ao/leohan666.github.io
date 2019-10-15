@@ -3,4 +3,4 @@
 ![我的头像](https://i.bmp.ovh/imgs/2019/10/a017df3937d241aa.png)
 ### 感谢CJW天马神坑
 
-[灵空网站] （https://lingkong-robot.cn/）
+[灵空网站] （https://lingkong-robot.cn）
